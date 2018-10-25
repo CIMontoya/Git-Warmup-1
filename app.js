@@ -1,0 +1,1 @@
+<iframe src="https://giphy.com/embed/dJGYFScvBjfRabiH7m" width="480" height="360" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/jcpenney-shaq-shaquille-oneal-dJGYFScvBjfRabiH7m">via GIPHY</a></p>
